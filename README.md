@@ -25,7 +25,3 @@ COMING SOON
 
 ## WINDOWS :
 COMING SOON
-CO
-
-
-PASSWORD ZIP = di komen
