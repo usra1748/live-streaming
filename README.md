@@ -21,7 +21,7 @@
 Cara Penggunaan bisa kalian tonton pada video ini :
 
 ## UBUNTU :
-[YOTUBE : CARA INSTALL AOTUO LOOPING STREAMING](https://youtu.be/Qqm2LUaOkBA)
+[YOTUBE : CARA INSTALL AOTUO LOOPING STREAMING. CLICK INI KOCAK](https://youtu.be/Qqm2LUaOkBA)
 
 ## WINDOWS :
 COMING SOON
